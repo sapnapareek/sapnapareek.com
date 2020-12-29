@@ -1,2 +1,2 @@
-# sidharthpanda.com
+# Sapna Pareek.com
 Portfolio Website
